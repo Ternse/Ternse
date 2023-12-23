@@ -11,4 +11,4 @@ though I am open to the idea of it. There is currently no way to reach me beside
 else to change here. Oh I just remembered, I'm currently working part time at a movie theater while part time at college. That's fun, not really. It's hard to be sarcastic
 through text. I guess I should delete the stuff above since I'm here. AND I ALSO FORGOT TO SAY MY NAME!! Hi, I'm Ternse. What does it mean? I do not know, hopefully nothing
 bad cause that would be awkward as I just made it up. As you can see, I tend to be a bit scattered brained, but that happens when you have everything though running through
-your brain 90 miles per hour or about 144km/h. I'm on at odd hours, I do not know why. That's just how I role. I think that's everything. Will update if I remember something.
+your brain 90 miles per hour or about 144km/h. I'm on at odd hours, I do not know why. That's just how I roll. I think that's everything. Will update if I remember something.
